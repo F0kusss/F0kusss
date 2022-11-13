@@ -1,4 +1,4 @@
-![Gif](http://i.imgur.com/zKhGSEn.gif)
+![Gif](https://miro.medium.com/max/1400/1*B0_ankmCI0CeI_0wlu8LTw.gif)
 
 # 🤗 &nbsp;About me
 
