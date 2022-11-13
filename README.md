@@ -1,4 +1,4 @@
-![Gif](https://media.giphy.com/media/7Jw6LxXuGduwjV07zV/giphy.gif)
+![Gif](http://i.imgur.com/zKhGSEn.gif)
 
 # 🤗 &nbsp;About me
 
