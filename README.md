@@ -1,3 +1,5 @@
+[ETH Gif](https://media.giphy.com/media/v0u7eU0nSmOJ0hGf6n/giphy.gif)
+
 # 🤗 &nbsp;About me
 
 My name is **Oleg Kulikov**, I'm a third year student of [ITMO](https://en.itmo.ru/en/) university. Solidity developer, by the way 😏
