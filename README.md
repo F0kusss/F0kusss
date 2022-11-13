@@ -1,4 +1,4 @@
-![ETH Gif](https://giphy.com/gifs/kentuckyayahuasca-space-viceland-kentucky-ayahuasca-7Jw6LxXuGduwjV07zV)
+![Gif](https://media.giphy.com/media/7Jw6LxXuGduwjV07zV/giphy.gif)
 
 # 🤗 &nbsp;About me
 
