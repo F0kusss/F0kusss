@@ -1,4 +1,4 @@
-![Gif](https://media.giphy.com/media/7Jw6LxXuGduwjV07zV/giphy.gif)
+![Gif](https://media.giphy.com/media/7Jw6LxXuGduwjV07zV/giphy-downsized.gif)
 
 # 🤗 &nbsp;About me
 
