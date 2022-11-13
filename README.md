@@ -1,4 +1,4 @@
-![Gif](https://miro.medium.com/max/1400/1*B0_ankmCI0CeI_0wlu8LTw.gif)
+![Gif](https://ipfs.pixura.io/ipfs/QmTSzUcPPP2Bfp2uNM12jyNNdiXQNB9JE8vsdXLZaUuQ8m)
 
 # 🤗 &nbsp;About me
 
