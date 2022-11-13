@@ -1,4 +1,4 @@
-![ETH Gif](https://media.giphy.com/media/u6mE49Th71PvG/giphy.gif)
+![ETH Gif](https://giphy.com/gifs/sky-space-u6mE49Th71PvG)
 
 # 🤗 &nbsp;About me
 
