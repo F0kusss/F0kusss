@@ -1,4 +1,4 @@
-![ETH Gif]([https://media.giphy.com/media/v0u7eU0nSmOJ0hGf6n/giphy.gif](https://media.giphy.com/media/u6mE49Th71PvG/giphy.gif))
+![ETH Gif](https://media.giphy.com/media/u6mE49Th71PvG/giphy.gif)
 
 # 🤗 &nbsp;About me
 
